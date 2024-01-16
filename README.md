@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @JWDEV22
+- 👀 I’m interested in Roblox Lua Devlopment, JS Development, and Python Development.
+- 🌱 I’m currently learning Python (I currently have took a break from Python), and Some Roblox Lua (Only Basic learning and not really fully).
+- 💞️ I’m looking to collaborate on Roblox Games (Contact me for more Information).
+- 📫 How to reach me Discord: JWW.8663
+- 😄 Pronouns: He/Him.
